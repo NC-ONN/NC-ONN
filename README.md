@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NC-ONN
-- 👀 I’m interested in Cheesburgers
+- 👀 I’m interested in Cheeseburgers
 - 🌱 I’m currently learning how to eat more Cheeseburger
 - 💞️ I’m looking to collaborate on making Cheesburger
 - 📫 Reach me in McDonald's
